@@ -3,4 +3,4 @@
 📫 | How to Reach Me: EmrullahAKTAS2022@gmail.com
 <hr>
 🔗 | https://twitter.com/EmrullahAKTAS_<br>
-🔗 | https://www.linkedin.com/in/emrullah-akta%C5%9F-892055241/
+🔗 | https://www.linkedin.com/in/EmrullahAKTAS
